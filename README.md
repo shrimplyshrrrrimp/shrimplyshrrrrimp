@@ -7,3 +7,4 @@
 <p>$$\color{rgba(178, 178, 178, 1)}{\text{⸝⸝\  socially anxious, but always free to interact!!}}$$</p>
 <p>$$\color{rgba(178, 178, 178, 1)}{\text{mostly semi-afk so send me a whisper if I don't seem to notice you ╮(￣ω￣;)╭}}$$</p>
 <p align="center"> $$\color{rgba(159, 0, 0, 1)}{\text{⋮ ⌗ }}$$ <a href="https://shrrrrimp.tumblr.com"> t</a>$$\color{rgba(159, 0, 0, 1)}{\text{umblr ┆ }}$$ <a href="https://rilishrimp.atabook.org"> 新</a>$$\color{rgba(159, 0, 0, 1)}{\text{book ┆ }}$$ <a href="https://pronouns.cc/@shrimply.shrrrrimp"> p</a>$$\color{rgba(159, 0, 0, 1)}{\text{ronouns.cc}}$$</p> 
+<p align="center"> <a href="https://hits.sh/github.com/shrimplyshrrrrimp/"><img alt="Hits" src="https://hits.sh/github.com/shrimplyshrrrrimp.svg?style=plastic&label=krills&color=7f0000"/></a> </p>
